@@ -76,7 +76,7 @@ I’m open to:
 - 🌍 **Collaborations & open-source contributions**
 
 📫 Feel free to connect or reach out via LinkedIn.
-https://www.linkedin.com/in/mariam-ghareeb-0a8517266/
 ---
+https://www.linkedin.com/in/mariam-ghareeb-0a8517266/
 
 ⭐ **Always learning. Always building. Always improving.**
